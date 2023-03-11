@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **akashshridharan2802@gmail.com**
 
-- ⚡ Fun fact **I think I am funny😁**
+- ⚡ Fun fact **I think I am not at all funny😁. LOL... 😉**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
